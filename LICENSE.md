@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Polymarket algorithm with exclusive Polymarket Algorithm | arbitrage-detection + slippage-control. Featuring arbitrage-detection and slippage-control, it's the
 
 
 
